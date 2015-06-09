@@ -1,3 +1,3 @@
-the best ot nothing.
+the best or nothing.
 
 yondu-cms-start-from-scratch
